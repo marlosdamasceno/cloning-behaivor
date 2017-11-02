@@ -107,6 +107,7 @@ I then recorded the vehicle recovering from the sides of the road back to center
 ![alt text][image4]  ![alt text][image5]
 
 Moreover, I did two additional laps on the counter-clockwise.
+
 ![alt text][image6]
 
 
